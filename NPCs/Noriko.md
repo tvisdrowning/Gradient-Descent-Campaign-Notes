@@ -1,0 +1,2 @@
+- named by minotaur
+- partake of the minotaur's flesh to be rejuvenated
